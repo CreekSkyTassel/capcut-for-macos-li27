@@ -1,4 +1,4 @@
-
+Get the ultimate CapCut for macOS plugin with CapCut for macOS elite Plugin: drag-and-drop-editor & retouch-tools. Featuring drag-and-drop-editor and retouch-tools, it's the best
 
 
 
